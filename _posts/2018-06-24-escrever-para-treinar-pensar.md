@@ -1,8 +1,6 @@
 ---
 published: true
 ---
-## Escrever para Treinar pensar
-
 Vi uma entrevista muito interessante com o Seth Godin.
 O Seth Godin é das pessoas mais inteligentes e interessantes que já descobri. Ele tem um blog onde escreve um post por dia, normalmente curto, com uma observação sobre a vida.
 
