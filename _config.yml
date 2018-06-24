@@ -3,10 +3,10 @@ markdown:         kramdown
 highlighter:      rouge
 
 # Setup
-title:            Hydeout
-tagline:          'A Jekyll theme blog'
-description:      'The <a href="http://hyde.getpoole.com" target="_blank">Hyde</a> theme for <a href="http://jekyllrb.com" target="_blank">Jekyll</a>, refreshed.'
-url:              https://fongandrew.github.io
+title:            Blog do João
+tagline:          'Uma ideia por dia'
+description:      'Ideias sobre coisas que li'
+url:              https://joao.li
 baseurl:          '/'
                   # the optional subpath of your site, e.g. "/blog"
                   # NB: This applies to all pages in your Jekyll site.
