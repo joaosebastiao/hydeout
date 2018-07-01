@@ -4,7 +4,7 @@ highlighter:      rouge
 
 # Setup
 title:            Blog do João
-tagline:          'Uma ideia por dia'
+tagline:          'Ideias sobre coisas que li'
 description:      'Ideias sobre coisas que li'
 url:              https://joao.li
 baseurl:          '/'
