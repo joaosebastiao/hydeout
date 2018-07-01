@@ -53,11 +53,11 @@ O que é que podemos fazer em relação aos nossos Modelos defeituosos de Previs
 
 Se leres estes livros (ou outros sobre o mesmo tema) vais aprender sobre toda uma variedade de maneiras em que as pessoas editam o seu Modelo erradamente. E a próxima vez que te aparecer uma camisa às riscas talvez a consigas apanhar antes de ela entrar no teu Modelo.
 
-2. Ouvir o que as melhores pessoas a Prever o Futuro têm a dizer sobre a realidade. As pessoas mais bem sucedidas do mundo. Tu queres descobrir o máximo possível sobre o Modelo deles e copiá-lo para o teu. Alguns deles chegaram lá por sorte, sim. Mas as probabilidades são que a maior parte é melhor a Prever o Futuro do que tu.
+2. A segunda coisa que podemos fazer é ouvir o que as melhores pessoas a Prever o Futuro têm a dizer sobre a realidade. As pessoas mais bem sucedidas do mundo. Tu queres descobrir o máximo possível sobre o Modelo deles e copiá-lo para o teu. Alguns deles chegaram lá por sorte, sim. Mas as probabilidades são que a maior parte é melhor a Prever o Futuro do que tu.
 
 Nós somos inacreditavelmente sortudos por viver numa altura onde temos acesso aos pensamentos e Modelos das pessoas de topo em qualquer área. 
 
-Costuma-se dizer que uma pessoa é a média das cinco pessoas com que mais se relacio. Diz-me com quem andas e dir-te-ei quem és. Porquê? Porque nós baseamos os nossos Modelos nas ideias que nos são repetidas mais vezes. 
+Costuma-se dizer que uma pessoa é a média das cinco pessoas com que mais se relaciona. Diz-me com quem andas e dir-te-ei quem és. Porquê? Porque nós baseamos os nossos Modelos nas ideias que nos são repetidas mais vezes. 
 
 A nossa família e amigos estão num certo nível no ranking da habilidade de Prever o Futuro. Nós copiamos grande parte dos Modelos deles e ficamos mais ou menos por ali também.
 
@@ -83,4 +83,4 @@ E aproveita o entretenimento extra de descobrir que caso a outra pessoa estivess
 
 Se não foi estudado científicamente, vai tentar descobrir se este novo Modelo que te apresentaram é o Modelo usado pelas pessoas de topo nessa área. Se for, parabéns, acabaste de te tornar melhor a Prever o Futuro! Se não for, a mesma coisa, de qualquer maneira tiveste de te ir informar.
 
-É assim que podes treinar a habilidade mais útil de todas.
+E é assim que podes aprender a Prever o Futuro!
