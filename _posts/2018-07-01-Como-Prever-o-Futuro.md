@@ -81,6 +81,6 @@ Se sim, segue o consenso científico.
 
 E aproveita o entretenimento extra de descobrir que caso a outra pessoa estivesse a defender a opinião contrária - sem conhecer a ciência neste tópico - 80% das vezes mostrar-lhe os testes científicos não vai servir de nada para lhe mudar a opinião.
 
-Se não foi estudado científicamente, vai tentar descobrir se este novo Modelo que te apresentaram é o Modelo usado pelas pessoas de topo nessa área. Se for, parabéns, acabaste de te tornar melhor a Prever o Futuro! Se não for, a mesma coisa, de qualquer maneira tiveste de te ir informar.
+Se não foi estudado científicamente, vai tentar descobrir se este novo Modelo que te apresentaram é o Modelo usado pelas pessoas de topo nessa área. Se for, parabéns, acabaste de te tornar melhor a Prever o Futuro! Se não for, descarta a ideia inicial e fica na mesma com esta nova que foste aprender com os melhores.
 
-E é assim que podes aprender a Prever o Futuro!
+E é assim que aprendes a Prever o Futuro!
