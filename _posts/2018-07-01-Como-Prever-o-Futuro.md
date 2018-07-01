@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 O que é a coisa mais valiosa que podes ter?
 
