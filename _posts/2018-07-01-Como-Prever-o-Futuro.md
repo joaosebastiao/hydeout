@@ -45,7 +45,7 @@ Todos nós temos partes do nosso Modelo que foram lá parar sem notarmos, atrav�
 
 O que é que podemos fazer em relação aos nossos Modelos defeituosos de Previsão Futurística?
 
-- A primeira coisa que podemos fazer é entender quais são os erros mais comuns que toda a gente costuma ter nos seus Modelos. Isto significa ler livros sobre racionalidade e erros de pensamento. Livros como:
+**A primeira coisa que podemos fazer é entender quais são os erros mais comuns que toda a gente costuma ter nos seus Modelos.** Isto significa ler livros sobre racionalidade e erros de pensamento. Livros como:
 	- You are not so smart - David Mcraney
     - Thinking fast and slow - Daniel Kahneman
     - Influence - Robert Cialdini
@@ -53,7 +53,7 @@ O que é que podemos fazer em relação aos nossos Modelos defeituosos de Previs
 
 Se leres estes livros (ou outros sobre o mesmo tema) vais aprender sobre toda uma variedade de maneiras em que as pessoas editam o seu Modelo erradamente. E a próxima vez que te aparecer uma camisa às riscas talvez a consigas apanhar antes de ela entrar no teu Modelo.
 
-- A segunda coisa que podemos fazer é ouvir o que as melhores pessoas a Prever o Futuro têm a dizer sobre a realidade. As pessoas mais bem sucedidas do mundo. Tu queres descobrir o máximo possível sobre o Modelo deles e copiá-lo para o teu. Alguns deles chegaram lá por sorte, sim. Mas as probabilidades são que a maior parte é melhor a Prever o Futuro do que tu.
+**A segunda coisa que podemos fazer é ouvir o que as melhores pessoas a Prever o Futuro têm a dizer sobre a realidade.** As pessoas mais bem sucedidas do mundo. Tu queres descobrir o máximo possível sobre o Modelo deles e copiá-lo para o teu. Alguns deles chegaram lá por sorte, sim. Mas as probabilidades são que a maior parte é melhor a Prever o Futuro do que tu.
 
 Nós somos inacreditavelmente sortudos por viver numa altura onde temos acesso aos pensamentos e Modelos das pessoas de topo em qualquer área. 
 
@@ -63,11 +63,11 @@ A nossa família e amigos estão num certo nível no ranking da habilidade de Pr
 
 Mas a internet mudou isto tudo. Agora podes passar o dia inteiro a ler ou ouvir podcasts e audiobooks com os melhores Modelos do mundo. O podcast do Tim Ferris é o melhor exemplo geral desta ideia, mas em qualquer área podes encontrar os melhores do mundo e ir ouvir e ler tudo o que eles têm para dizer.
 
-- Por fim, em terceiro lugar, posso sugerir já uma actualização ao teu Modelo que eu fiz ao meu e me tem sido muito útil. Sempre que alguém tiver uma opinião diferente da tua, e tiveres de decidir se vais fazer uma mudança ao teu Modelo, pensa assim:
+Por fim, em terceiro lugar, posso sugerir já uma actualização ao teu Modelo que eu fiz ao meu e me tem sido muito útil. Sempre que alguém tiver uma opinião diferente da tua, e tiveres de decidir se vais fazer uma mudança ao teu Modelo, pensa assim:
 
 A maior parte das pessoas detesta estar errada ou admitir que não percebe algum tema. Finca os pés e defende com unhas e dentes uma opinião disparatada qualquer. Isto não é como queres ser. O teu objetivo não é estar certo ou provar a toda a gente o quão culto e eloquente és. 
 
-O teu objetivo é aprender a Prever o Futuro através de um Modelo que se aproxima mais da realidade.
+**O teu objetivo é aprender a Prever o Futuro através de um Modelo que se aproxima mais da realidade.**
 
 Isto significa que sempre que falas com alguém que te diz uma coisa diferente do que acreditas, tens uma oportunidade perfeita para descobrir que estás enganado. Ou seja, uma oportunidade para melhorares o teu Modelo e tornares-te melhor a Prever o Futuro.
 
