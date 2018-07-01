@@ -5,7 +5,7 @@ published: true
 
 Claramente a resposta é saúde. Seguida por ter pessoas de quem gostes e que gostem de ti, e que também sejam saudáveis.
 
-Mas depois disso, a coisa mais valiosa, que toda a gente quer, mas nem toda a gente se apercebe que quer, é a capacidade de Prever o Futuro.
+## Mas depois disso, a coisa mais valiosa, que toda a gente quer, mas nem toda a gente se apercebe que quer, é a capacidade de Prever o Futuro.
 
 Tu vais sair com alguém, vais a uma entrevista de emprego, vais viajar para outro país. Era o que querias há dias, ou anos. Porque é que estás nervoso? Porque não sabes o que vai acontecer. Todo o stress e ansiedade vêm de não sabermos o que vai acontecer em situações que importam para nós. Somos maus a Prever o Futuro.
 
