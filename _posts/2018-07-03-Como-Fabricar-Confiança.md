@@ -70,7 +70,7 @@ E aqui já começamos a ver o que se esconde por trás da Confiança.
 
 Neste momento estás a pensar que sim, isso é nos jogos, mas nem tudo é um jogo! Eu quero é ser confiante ao pé das outras pessoas! Quero ser popular e o centro das atenções, e fazer os meus amigos rir!
 
-Mas ser bom socialmente é só ser competente num certo conjunto de mini-jogos que acontecem uns a seguir aos outros. Em qualquer destes mini-jogos podes-te tornar melhor a prever o que vai acontecer (para começares a fazer as coisas certas em vez das erradas) e podes melhorar o teu controlo sobre como fazes essas coisas.
+Mas ser bom socialmente é só ser competente num certo conjunto de mini-jogos que acontecem uns a seguir aos outros. Em qualquer destes mini-jogos podes tornar-te melhor a prever o que vai acontecer (para começares a fazer as coisas certas em vez das erradas) e podes melhorar o teu controlo sobre como fazes essas coisas.
 
 Um exemplo destes mini-jogos sociais:
 
