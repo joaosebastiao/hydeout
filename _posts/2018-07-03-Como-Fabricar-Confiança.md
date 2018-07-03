@@ -4,7 +4,7 @@ published: true
 
 **O que é Confiança e porque é que nós a queremos?**
 
-Todos queremos confiança, mas sempre me pareceu uma palavra pouco útil.
+Todos queremos Confiança, mas sempre me pareceu uma palavra pouco útil.
 
 Há uma cena no filme Captain Fantastic que representa bem o que sinto sobre a palavra:
 
@@ -28,7 +28,7 @@ Bo: Illegal word!
 
 Zaja: Dad, Kielyr said interesting!
 
-**Ben: Interesting is a non-word. You know you're supposed to avoid it... Be specific.**
+Ben: **Interesting is a non-word. You know you're supposed to avoid it... Be specific.**
 
 Kielyr: It's disturbing.
 
@@ -127,7 +127,7 @@ O antídoto para esta segunda metade é Coragem. E é um antídoto que ainda dó
 
 Mas felizmente lutar contra a Resistência também é uma habilidade, e quanto mais treinas mais fácil se torna.
 
-Por isso, resumindo, Como Fabricar Confiança:
+**Por isso, resumindo, Como Fabricar Confiança:**
 
 1. O Passo Fácil. Estudar sobre o tema em que queres ser confiante, melhorar o teu Modelo do jogo a partir das pessoas que são boas no jogo, para teres uma ideia bem formada do que é suposto fazeres.
 
