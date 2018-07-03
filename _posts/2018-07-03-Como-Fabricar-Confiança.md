@@ -117,48 +117,20 @@ A isto chamamos Preguiça e o antídoto chama-se força de vontade e hábito. Us
 
 A outra metade da Resistência é a Ansiedade. Quando conseguiste usar a força de vontade e o hábito para ultrapassar a preguiça, e até escreveste um livro ou uma série de histórias, mas agora que está na altura de começares a partilhá-las e a ficar exposto, deixas para mais logo.
 
-Ou foste sair para um bar e queres falar com a miúda mesmo gira que está ao teu lado.
+Ou foste sair para um bar e queres falar com a miúda mesmo gira que está ao teu lado, mas corrias o risco de ser rejeitado.
 
 Ou queres ser menos tímida e contar para o grupo uma história que te aconteceu há uns dias, mas ias ter de aguentar a pressão de ser o centro das atenções.
 
-Deixas para a próxima vez. Da próxima vai ser mais fácil e vais estar mais bem preparado. Apesar desta vez já ter sido a próxima de quando pensaste nisto a semana passada. Quando o futuro chega, já voltou a ser o presente.
+Deixas para a próxima vez. Da próxima vai ser mais fácil e vais estar mais bem preparado. Apesar desta vez já ter sido a próxima de quando pensaste nisto a última vez. Quando o futuro chega, já voltou a ser o presente.
 
-O antídoto para esta segunda metade é Coragem. 
+O antídoto para esta segunda metade é Coragem. E é um antídoto que ainda dói mais que o primeiro.
 
+Mas felizmente lutar contra a Resistência também é uma habilidade, e quanto mais treinas mais fácil se torna.
 
+Por isso, resumindo, Como Fabricar Confiança:
 
+1. O Passo Fácil. Estudar sobre o tema em que queres ser confiante, melhorar o teu Modelo do jogo a partir das pessoas que são boas no jogo, para teres uma ideia bem formada do que é suposto fazeres.
 
+2. O Passo Difícil. Comprar controlo sobre ti próprio através de tempo passado em repetição e treino. Isto implica lutar contra a Resistência - Preguiça e Ansiedade - com os seus antídotos - Força de Vontade, Hábito e Coragem.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+3. O Resultado: Competência e Confiança
