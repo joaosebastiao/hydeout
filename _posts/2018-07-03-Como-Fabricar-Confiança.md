@@ -125,7 +125,7 @@ Deixas para a próxima vez. Da próxima vai ser mais fácil e vais estar mais be
 
 O antídoto para esta segunda metade é Coragem. E é um antídoto que ainda dói mais que o primeiro.
 
-Mas felizmente lutar contra a Resistência também é uma habilidade, e quanto mais treinas mais fácil se torna.
+Mas, felizmente, lutar contra a Resistência também é uma habilidade, e quanto mais treinas mais fácil se torna.
 
 **Por isso, resumindo, Como Fabricar Confiança:**
 
