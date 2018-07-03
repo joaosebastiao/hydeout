@@ -105,7 +105,13 @@ Esta segunda ideia é a mais curiosa para mim. O facto de existir uma parte do n
 
 Pagas com tempo e repetição. E visto que o tempo é literalmente a vida, significa que temos de trocar bocados da nossa vida por certas habilidades.
 
-Compramos controlo. 
+Compramos controlo. E esta compra é tão difícil que as pessoas que mais admiramos normalmente são as pessoas que mais controlo têm sobre si próprias. Atletas, atores, artistas.
+
+Mas porque é que é tão difícil alcançar este controlo? Quase todos concordamos que a recompensa compensaria o esforço, mas mesmo assim é dificílimo treinarmos tanto quanto gostaríamos.
+
+
+
+
 
 
 
