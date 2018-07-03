@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 
 **O que é Confiança e porque é que nós a queremos?**
