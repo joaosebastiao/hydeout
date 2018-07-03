@@ -52,7 +52,7 @@ Confiança também é uma Não-Palavra!
 
 Se formos mais específicos, o que é que significa ser confiante?
 
-Sabes uma área onde eu sou completamente confiante? A jogar ao jogo do galo. Sei exatamente o que vai acontecer. Seu eu começar o jogo primeiro e o meu adversário tiver menos de 7 anos, provavelmente vou ganhar. Se eu começar em segundo vamos empatar, não importa com quem esteja a jogar.
+Sabes uma área onde eu sou completamente confiante? A jogar ao jogo do galo. Sei exatamente o que vai acontecer. Se eu começar o jogo primeiro e o meu adversário tiver menos de 7 anos, provavelmente vou ganhar. Se eu começar em segundo vamos empatar, não importa com quem esteja a jogar.
 
 Porque é que toda a gente é confiante no jogo do galo?
 
