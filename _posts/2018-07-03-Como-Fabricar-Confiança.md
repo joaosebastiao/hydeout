@@ -115,9 +115,9 @@ O problema é o que o escritor Steven Pressfield chama a Resistência. Uma barre
 
 Queres tornar-te um escritor profissional, mas o problema é que és um macaco que evoluiu ao longo de milhares de anos para não deixar para amanhã o que pode ter hoje. E hoje tens um frigorífico cheio e uma série excelente para ver no Netflix.
 
-A isto chamamos Preguiça e o antídoto chama-se força de vontade e hábito. Usas a força de vontade para criar o hábito, e depois as coisas tornam-se um bocadinho mais fáceis. Mas é um antídoto que custa a engolir.
+A isto chamamos Preguiça e o antídoto chama-se Força de Vontade e Hábito. Usas a Força de Vontade para criar o Hábito, e depois as coisas tornam-se um bocadinho mais fáceis. Mas é um antídoto que custa a engolir.
 
-A outra metade da Resistência é a Ansiedade. Quando conseguiste usar a força de vontade e o hábito para ultrapassar a preguiça, e até escreveste um livro ou uma série de histórias, mas agora que está na altura de começares a partilhá-las e a ficar exposto, deixas para mais logo.
+A outra metade da Resistência é a Ansiedade. Quando até já conseguiste usar a Força de Vontade e o Hábito para ultrapassar a Preguiça. Até escreveste um livro ou uma série de contos. Mas agora que está na altura de começares a partilhá-las e a ficar exposto, deixas para mais logo.
 
 Ou foste sair para um bar e queres falar com a miúda mesmo gira que está ao teu lado, mas corrias o risco de ser rejeitado.
 
