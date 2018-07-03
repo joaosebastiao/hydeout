@@ -80,8 +80,8 @@ Qualquer comediante de stand up sabe que a comédia se treina como qualquer outr
 
 Podes melhorar o teu Modelo do que faz as pessoas rir por exemplo ao aprender que o inesperado é engraçado. O criar expectativas e depois quebrar essas expectativas de uma maneira que continua a ser verdade.
 
-Quando era novo sempre me senti como se fosse um rapaz preso no corpo de uma rapariga.
-E depois nasci.
+_Quando era novo sempre me senti como se fosse um rapaz preso no corpo de uma rapariga.
+E depois nasci._
 
 Porque é que nos rimos quando somos "enganados" desta maneira? Ninguém sabe. Mas é uma das regras deste jogo.
 
