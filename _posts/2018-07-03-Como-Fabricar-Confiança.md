@@ -97,6 +97,8 @@ Tens de ficar competente nesse jogo.
 
 Em primeiro lugar tens de tornar-te melhor na parte técnica do jogo. Melhorar o teu Modelo. Aprender a Prever o Futuro nesta área. Quando fazes certa ação, qual é a consequência dessa ação?
 
+A maneira certa de fazer isto é imitar os melhores. Dividir o tema em partes mais pequenas e estudar o que é que as pessoas boas neste jogo fazem em cada uma das partes.
+
 Quando te tornas bom nisto consegues começar a agir da maneira certa.
 
 Em segundo lugar tens de melhorar o teu controlo sobre ti próprio.
