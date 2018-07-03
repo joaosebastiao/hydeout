@@ -6,7 +6,7 @@ published: false
 
 Todos queremos confiança, mas sempre me pareceu uma palavra pouco útil.
 
-Há uma cena no filme Captain Fantastic que representa bem o que sinto sobre esse tipo de palavras:
+Há uma cena no filme Captain Fantastic que representa bem o que sinto sobre a palavra:
 
 Kielyr: What's a bordello?
 
@@ -60,9 +60,17 @@ Dois motivos, primeiro porque todos conseguimos prever exatamente o que vai acon
 
 Quase tudo na vida é um jogo. Que é como quem diz, uma actividade onde tens um objetivo e podes atingi-lo ou não. E há duas razões porque podes ser mau num jogo:
 
-1. És mau a prever as consequências das tuas ações no jogo. Como por exemplo no xadrez. Quem conseguir prever mais jogadas em avanço vai ganhar.
+**1. És mau a prever as consequências das tuas ações no jogo.** Como por exemplo no xadrez. Quem conseguir prever mais jogadas em avanço vai ganhar.
 
-2. O teu controlo sobre ti próprio não é suficientemente bom. Como por exemplo a desenhar
+**2. O teu controlo sobre ti próprio não é suficientemente bom.** Como por exemplo a desenhar. Sabes exatamente o que é suposto fazeres e qual deve ser o resultado final, mas a tua mão não te obedece.
+
+E aqui já começamos a ver o que se esconde por trás da Confiança. Ser confiante é só ser competente num determinado jogo. Sabes qual é a jogada certa e tens o controlo para fazer essa jogada.
+
+Neste momento estás a pensar que sim, isso é nos jogos, mas nem tudo é um jogo! Eu quero é ser confiante ao pé das outras pessoas! Quero ser popular e o centro das atenções, e fazer os meus amigos rir!
+
+
+
+
 
 
 
