@@ -64,13 +64,13 @@ Quase tudo na vida é um jogo. Que é como quem diz, uma actividade onde tens um
 
 **2. O teu controlo sobre ti próprio não é suficientemente bom.** Como por exemplo a desenhar. Sabes exatamente o que é suposto fazeres e qual deve ser o resultado final, mas a tua mão não te obedece.
 
-Este segundo ponto para mim é o mais curioso.
+E aqui já começamos a ver o que se esconde por trás da Confiança. 
 
-E aqui já começamos a ver o que se esconde por trás da Confiança. **Ser confiante é só ser competente num determinado jogo.** Sabes qual é a jogada certa e tens o controlo para fazer essa jogada.
+**Ser confiante é só ser competente num determinado jogo.** Sabes qual é a jogada certa e tens o controlo para fazer essa jogada.
 
 Neste momento estás a pensar que sim, isso é nos jogos, mas nem tudo é um jogo! Eu quero é ser confiante ao pé das outras pessoas! Quero ser popular e o centro das atenções, e fazer os meus amigos rir!
 
-Mas ser bom socialmente é só ser bom num certo conjunto de mini-jogos que acontecem uns a seguir aos outros. Em qualquer destes mini-jogos podes-te tornar melhor a prever o que vai acontecer (para começares a fazer as coisas certas em vez das erradas) e podes-te tornar melhor na maneira como fazes essas coisas.
+Mas ser bom socialmente é só ser bom num certo conjunto de mini-jogos que acontecem uns a seguir aos outros. Em qualquer destes mini-jogos podes-te tornar melhor a prever o que vai acontecer (para começares a fazer as coisas certas em vez das erradas) e podes melhorar o teu controlo sobre como fazes essas coisas.
 
 Um exemplo destes mini-jogos sociais:
 
@@ -78,7 +78,7 @@ Fazer os outros rir. Ser bom em comédia.
 
 Qualquer comediante de stand up sabe que a comédia se treina como qualquer outra habilidade. Tens pontos muito específicos que se forem estudados e melhorados vão fazer mais gente rir.
 
-Podes melhorar o teu Modelo do que faz as pessoas rir por exemplo ao aprender que o inesperado é engraçado. O criar expectativas e depois quebrar as expectativas de uma maneira que continua a ser verdade.
+Podes melhorar o teu Modelo do que faz as pessoas rir por exemplo ao aprender que o inesperado é engraçado. O criar expectativas e depois quebrar essas expectativas de uma maneira que continua a ser verdade.
 
 Quando era novo sempre me senti como se fosse um rapaz preso no corpo de uma rapariga.
 E depois nasci.
@@ -91,7 +91,21 @@ No segundo ponto - controlo sobre ti próprio - entram por exemplo coisas como o
 
 Quando controlas as duas partes, és competente a fazer os teus amigos rir. Tens Confiança nesta área.
 
+**Como é que podes então tornar-te Confiante no jogo que te importa?**
 
+Tens de ficar competente nesse jogo.
+
+Em primeiro lugar tens de tornar-te melhor na parte técnica do jogo. Melhorar o teu Modelo. Aprender a Prever o Futuro nesta área. Quando fazes certa ação, qual é a consequência dessa ação?
+
+Quando te tornas bom nisto consegues começar a agir da maneira certa.
+
+Em segundo lugar tens de melhorar o teu controlo sobre ti próprio.
+
+Esta segunda ideia é a mais curiosa para mim. O facto de existir uma parte do nosso cérebro que se comporta de maneira aleatória e contrária à nossa vontade. E que a única maneira de reduzir esta falta de controlo é através de um "pagamento".
+
+Pagas com tempo e repetição. E visto que o tempo é literalmente a vida, significa que temos de trocar bocados da nossa vida por certas habilidades.
+
+Compramos controlo. 
 
 
 
