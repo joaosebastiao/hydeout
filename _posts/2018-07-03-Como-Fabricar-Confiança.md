@@ -70,7 +70,7 @@ E aqui já começamos a ver o que se esconde por trás da Confiança.
 
 Neste momento estás a pensar que sim, isso é nos jogos, mas nem tudo é um jogo! Eu quero é ser confiante ao pé das outras pessoas! Quero ser popular e o centro das atenções, e fazer os meus amigos rir!
 
-Mas ser bom socialmente é só ser bom num certo conjunto de mini-jogos que acontecem uns a seguir aos outros. Em qualquer destes mini-jogos podes-te tornar melhor a prever o que vai acontecer (para começares a fazer as coisas certas em vez das erradas) e podes melhorar o teu controlo sobre como fazes essas coisas.
+Mas ser bom socialmente é só ser competente num certo conjunto de mini-jogos que acontecem uns a seguir aos outros. Em qualquer destes mini-jogos podes-te tornar melhor a prever o que vai acontecer (para começares a fazer as coisas certas em vez das erradas) e podes melhorar o teu controlo sobre como fazes essas coisas.
 
 Um exemplo destes mini-jogos sociais:
 
@@ -103,11 +103,17 @@ Em segundo lugar tens de melhorar o teu controlo sobre ti próprio.
 
 Esta segunda ideia é a mais curiosa para mim. O facto de existir uma parte do nosso cérebro que se comporta de maneira aleatória e contrária à nossa vontade. E que a única maneira de reduzir esta falta de controlo é através de um "pagamento".
 
-Pagas com tempo e repetição. E visto que o tempo é literalmente a vida, significa que temos de trocar bocados da nossa vida por certas habilidades.
+Pagamos com tempo e repetição. E visto que o tempo é literalmente a vida, significa que temos de trocar bocados da nossa vida por certas habilidades.
 
 Compramos controlo. E esta compra é tão difícil que as pessoas que mais admiramos normalmente são as pessoas que mais controlo têm sobre si próprias. Atletas, atores, artistas.
 
 Mas porque é que é tão difícil alcançar este controlo? Quase todos concordamos que a recompensa compensaria o esforço, mas mesmo assim é dificílimo treinarmos tanto quanto gostaríamos.
+
+O problema é o que o escritor Steven Pressfield chama a Resistência. Uma barreira invisível de Preguiça e Ansiedade. Não consegues vê-la, mas consegues senti-la todos os dias.
+
+Queres tornar-te um escritor profissional, mas o problema é que és um macaco que evoluiu ao longo de milhares de anos para não deixar para amanhã o que pode ter hoje. E hoje tens um frigorífico cheio e uma série excelente para ver no Netflix.
+
+
 
 
 
