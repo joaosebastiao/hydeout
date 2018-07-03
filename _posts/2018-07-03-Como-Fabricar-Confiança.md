@@ -2,7 +2,7 @@
 published: true
 ---
 
-**O que é Confiança e porque é que nós a queremos?**
+**O que é a Confiança e como é que a podemos alcançar?**
 
 Todos queremos Confiança, mas sempre me pareceu uma palavra pouco útil.
 
