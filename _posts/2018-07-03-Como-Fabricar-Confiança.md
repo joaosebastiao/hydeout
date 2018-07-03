@@ -66,7 +66,7 @@ Quase tudo na vida é um jogo. Que é como quem diz, uma actividade onde tens um
 
 E aqui já começamos a ver o que se esconde por trás da Confiança. 
 
-**Ser confiante é só ser competente num determinado jogo.** Sabes qual é a jogada certa e tens o controlo para fazer essa jogada.
+**Ser confiante é só ser competente num determinado jogo.** Saber qual é a jogada certa e ter o controlo para fazer essa jogada.
 
 Neste momento estás a pensar que sim, isso é nos jogos, mas nem tudo é um jogo! Eu quero é ser confiante ao pé das outras pessoas! Quero ser popular e o centro das atenções, e fazer os meus amigos rir!
 
