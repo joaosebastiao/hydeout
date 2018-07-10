@@ -29,9 +29,9 @@ Por exemplo:
 
 Inventa agora uma tua.
 
-Se prestares atenção, o que é que está a aconter?
+Se prestares atenção, o que é que está a acontecer?
 
-Primeiro estão a vir-te vários sons à cabeça. Existem letras 21 consoantes e 5 vogais. E o teu cérebro está a misturá-los aleatoriamente 
+
 
 
 
